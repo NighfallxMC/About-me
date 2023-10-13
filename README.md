@@ -1,4 +1,7 @@
-- 👋 Hi, I’m @Nighfall_pT
-- I'm doing ma Python, VBS, And scratch stuff.
+### Hewwwo I'm Backslash
 
-Have funn with ma stuff. (If I post any)
+I do some python related stuff that I most of times forget to post here (sowwie for that)
+
+If you're interested you can use my stuff. Have fun
+
+UwU
